@@ -1,4 +1,4 @@
-### Hi there, I am Baskov Aleksey Victorovich 👋 i'm looking new opportunity in it technologies) 
+### Hi there! I am Baskov Aleksey Victorovich 👋 I'm looking for new opportunities in IT technologies)
 
 <!--
 **Baskov-Aleksey-Viktorovich/Baskov-Aleksey-Viktorovich** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
